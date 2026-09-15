@@ -54,7 +54,7 @@ My question is a concrete one: **how to make lightweight, interpretable models w
 <div align="center">
 <sub>
 
-📍 青岛，中国 · Qingdao, China &nbsp;|&nbsp; ✉️ your-email@example.com
+📍 青岛，中国 · Qingdao, China &nbsp;|&nbsp; ✉️ 2746928227@qq.com
 
 <sub>最后更新 / Last updated: 2026-09</sub>
 
